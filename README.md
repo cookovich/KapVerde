@@ -85,6 +85,14 @@ https://www.travelbook.de/ziele/inseln/kapverden-tipps
 https://www.viator.com/de-DE/Sal/d28618-ttd
 https://youtu.be/mn4-MJpcnLU
 
+25 Best Things To Do In Sal – Cape Verde | Complete Guide 2020
+https://madefortravellers.com/cape-verde-islands-25-best-things/
+
+20 Top Things To Do in Sal, Cape Verde
+https://paulinaontheroad.com/what-to-do-in-sal-cape-verde-best-hotels/
+
+Liste aus einem anderen Blog
+https://www.google.com/maps/d/viewer?mid=125ixVPJyjaPG4XM3UxvMVxOvAjyaYf7i&usp=sharing
 
 15 Inseln, 9 davon bewohnt
 
